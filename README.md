@@ -1,3 +1,5 @@
+I'm CatCanAlsoWrite, now experiencing my **career shifting** and **work exchanging** life in an island in south China.
+
 #### My Plan in the next 6 months
 
 My Goal | My Daily Routine | My Record
@@ -6,7 +8,6 @@ My Goal | My Daily Routine | My Record
 ⚡build my own Youtube channel, sharing my world-exploring life | teach language (English, French, German, Japanese), learn Chinese KongFu, make coffee and roast beans, paint | [My Youtube]()
 
 ## About me
-I'm CatCanAlsoWrite, now experiencing my **career shifting** and **work exchanging** life in an island in south China.
 
 #### gap years
 During my gap years from 2020 to 2022, I embarked on a **transformative journey of self-discovery**, where I had the opportunity to explore 5 different cities, read over 50 books, write more than 100 essays, try 3 different jobs, learn to play the ukulele, practice French/German/Japanese, paint, and engage in a variety of sports and meditation practices. 
