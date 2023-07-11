@@ -1,7 +1,7 @@
 ## About me
 I'm CatCanAlsoWrite, now experiencing my **career shifting** and **work exchanging** life in an island in south China.
 
-Feel free to connect me at MerinLee@proton.me
+It's interesting to explore the world and link different mind. So, feel free to connect me at MerinLee@proton.me
 
 #### My Plan in the next 6 months
 
