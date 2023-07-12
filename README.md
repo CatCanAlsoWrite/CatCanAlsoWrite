@@ -9,7 +9,6 @@ Goal | Daily Routine | Record
 🌱find a front-end or full-stack development job (better in Berlin) | study computer science, do personal project | [My LinkedIn](https://www.linkedin.com/in/merin-lee/)
 ⚡build my own Youtube channel, sharing my world-exploring life | teach language (English, French, German, Japanese), learn Chinese KongFu, make coffee and roast beans, paint | [My Youtube]()
 
-
 #### Career Progress
 [problem solving experience](https://github.com/CatCanAlsoWrite/problem-solving) | 
 [learning records](https://github.com/CatCanAlsoWrite/learning-material) 
