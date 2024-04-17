@@ -1,5 +1,5 @@
 ## About me
-I'm CatCanAlsoWrite, now experiencing my **developer** life as a full-stack engineer in southwest China.
+I'm CatCanAlsoWrite, now experiencing my **fullstack developer** life as a full-stack engineer in southwest China.
 
 It's interesting to explore the world and link different mind. So, feel free to connect me at MerinLee@proton.me
 
